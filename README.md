@@ -1,4 +1,4 @@
 # BCM
 BlockChainMastery 
 
-Find Your Best 
+Find Your Best In Your Own Mind World
